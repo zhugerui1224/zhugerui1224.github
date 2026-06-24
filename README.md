@@ -1,2 +1,1 @@
-援爱慈善基金会
-已捐款120000元
+yuanaicishanjijinhui.cn.mt
